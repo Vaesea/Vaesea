@@ -4,11 +4,9 @@ Hello, I am indeed Vaesea, obviously! You clicked onto this profile with the nam
 
 I am also called EggsAndBakeyGJ since I set that as my username for other platforms. Yes. :3
 
-I make stuff related to reTux but I used to make stuff related to VS Stev, all fanmade since I don't actually work on reTux or VS Stev (VS Stev is a Friday Night Funkin' mod that was actually cancelled a while ago, no I don't support the creator of that mod, I know what he did. Your Average FNF Pro more like Your Average Roblox NSFW Enjoyer, more like Your Average Racism Fan)
+I make stuff related to SuperTux.
 
 Strange Bill Journey isn't cancelled.
-
-Tux Exploration will be finished before Strange Bill Journey.
 
 I think of new projects every damn fucking day! Yay! HAAHAHUJWSHGUAHHAWAHAHAHA :3:3:3 HELP ME :3
 
