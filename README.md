@@ -14,4 +14,6 @@ Pronouns: She / Her
 
 Sexuality: Bisexual
 
+Transgender
+
 VS Stev Red Heaven never existed :3 there's not a repository of it and if you see one uhhh you're seeing things that aren't there :3 🤑🤑🤑🤑🤑🤑🤑🤑
