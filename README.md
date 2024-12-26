@@ -1,19 +1,13 @@
-# The Vaesea Profile :3
+# The Vaesea Profile :3 for the 2nd time
 
-Hello, I am indeed Vaesea, obviously! You clicked onto this profile with the name "Vaesea" so you expected that.
+now with less :3 because im tired!
 
-I am also called EggsAndBakeyGJ since I set that as my username for other platforms. Yes. :3
+i make fanmade supertux mod named timetux
+that's all you need to know
 
-I make stuff related to SuperTux.
 
-Strange Bill Journey isn't cancelled.
+sexuality: pansexual
+pronouns: he/she/they
 
-I think of new projects every damn fucking day! Yay! HAAHAHUJWSHGUAHHAWAHAHAHA :3:3:3 HELP ME :3
 
-Pronouns: She / Her
-
-Sexuality: Bisexual
-
-Transgender
-
-VS Stev Red Heaven never existed :3 there's not a repository of it and if you see one uhhh you're seeing things that aren't there :3 🤑🤑🤑🤑🤑🤑🤑🤑
+:3 
