@@ -7,7 +7,9 @@ that's all you need to know
 
 
 sexuality: pansexual
-pronouns: he/she/they
+
+transgender
+pronouns: she/they
 
 
 :3 
