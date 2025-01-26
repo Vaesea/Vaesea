@@ -9,6 +9,7 @@ that's all you need to know
 sexuality: pansexual
 
 transgender
+
 pronouns: she/they
 
 
