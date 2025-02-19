@@ -6,7 +6,7 @@ i make fanmade supertux mod named timetux
 that's all you need to know
 
 
-sexuality: pansexual
+pansexual
 
 transgender
 
