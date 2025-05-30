@@ -5,9 +5,6 @@ now with less :3 because im tired!!!!!!!!!!!!
 i make fanmade supertux mods and other things
 that's all you need to know
 
-
-pansexual
-
 transgender
 
 pronouns: she/they
