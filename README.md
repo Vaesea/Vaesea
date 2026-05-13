@@ -2,7 +2,7 @@
 I'm Vaesea.
 
 ## What do I work on?
-I work on Adel Time and more projects.
+GodotTux, Taciturn Journey, PepperTux, RedmondTux, wow that's a lot of Tux.
 
 ## What can I make?
 I can make music, I can try make art I guess???
